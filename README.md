@@ -4,8 +4,9 @@
 
 We visit our local church, consecrated in 1861, occasionally through the year to participate in Sunday services during which our children walk in the uniformed flag parades.  We sing songs, feel as though our presence enhances our community in a small way and, of course, we contribute tiny amounts to the church funds.
 
-
 The church now has budget approval to refurbish the roof and bell tower but today we were asked for our suggestions for internal works, so the ideas can be collated later; this being the very start of a consultation process.
+
+Before starting, aside from maybe updating the sound system I'm not in favour of any modernisation; the basic interior with its carved wood, sculpted stone and inspirational stained glass needn't be *changed.*
 
 ### So what observations did we make whilst still in the church?
 

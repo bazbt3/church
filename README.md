@@ -20,7 +20,7 @@ Yes, we usually sit really close to the front.
 ### After lunch I asked my girls for their ideas:
 
 * My oldest suggested **more flowers would enhance the church's appeal** for her.  I should omit her wish for shorter services from the final version of this document.
-* **My youngest suggested **an upgrade to the children's play area,** and rejected the idea of a separate room.
+* My youngest suggested **an upgrade to the children's play area,** and rejected the idea of a separate room.
 
 ### Bonus observations:
 
